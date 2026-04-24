@@ -1,2 +1,1 @@
-# kumworld-whitepaper
-kumworld-whitepaper
+# LTIK UNIVERSE
